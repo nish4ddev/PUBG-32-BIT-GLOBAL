@@ -1,0 +1,1 @@
+# PUBG-32-BIT-GLOBAL
